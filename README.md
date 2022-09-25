@@ -6,9 +6,9 @@ I have been working for five years and  I need to crack english skills quickly s
    remember vocabulary is everything!vocabulary!vocabulary!vocabulary   
 2. a speaking partner(email me ~)
 3. cambridge 8-17 series
-4. writing samples and have your own ideas book
-   here is my idea collections, most of which are my true believing.
-   [writing ideas](https://note.youdao.com/s/MYsn3cbK)
+4. writing samples and have your own ideas book          
+   here is my idea collections, most of which are my true believing.          
+   [writing ideas](https://note.youdao.com/s/MYsn3cbK)            
 
 
 ## E-book materials
