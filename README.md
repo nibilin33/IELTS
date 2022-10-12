@@ -1,5 +1,7 @@
 # IELTS
-I have been working for five years and  I need to crack english skills quickly so I took three months to study and take the International English Test System which helped me master the basic skills fastly from zero to one.
+I have been working for five years and I need to crack english skills quickly       
+so I took three months to study and take the International English Test System      
+which helped me master the basic skills fastly from zero to one with final score 7.0.     
 
 ## Preparion
 1. a memory apps -- Ankimemory   
