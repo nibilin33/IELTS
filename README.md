@@ -5,7 +5,7 @@ I have been working for five years and I need to crack english skills quickly
 so I took three months to study and take the International English Test System      
 which helped me master the basic skills fastly from zero to one with final score 7.0.     
 ## Plan
-Using Lique IELTS to generate custom Plan
+Using Lique IELTS to generate custom Plan    
 [Lique IELTS](https://www.aonn.vip/#/customization)      
 
 ![Lique Plan](https://github.com/nibilin33/IELTS/raw/main/images/plan.png)
