@@ -8,6 +8,8 @@ which helped me master the basic skills fastly from zero to one with final score
 Using Lique IELTS to generate custom Plan
 [Lique IELTS](https://www.aonn.vip/#/customization)      
 
+![Lique Plan](https://github.com/nibilin33/IELTS/raw/main/images/plan.png)
+
 ## Preparion
 1. a memory apps -- Ankimemory   
    remember vocabulary is everything!vocabulary!vocabulary!vocabulary   
